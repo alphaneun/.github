@@ -7,4 +7,5 @@ Die Grenzen des Digital Buzz verschieben: Für eine vertrauensvolle, erfolgreich
 ## Links
 
 * Website: [AlphaNeun](https://alphaneun.de)
-* Instagram: @alphaneun
+* Instagram: [@alphaneun](https://instagram.com/alphaneun)
+* Twitter: [@alpha9marketing](https://twitter.com/alpha9marketing)
