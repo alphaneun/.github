@@ -1,4 +1,4 @@
-# Alpha Neun Ventures GmbH
+# Alpha Neun GmbH & Co.KG
 
 ## Unsere Mission?
 
